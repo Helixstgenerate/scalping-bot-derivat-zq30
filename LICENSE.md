@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered scalping bot for derivatives Module | cross-margin + high-frequency, the #1 scalping bot for derivatives. Includes cross-margin and
 
 
 
